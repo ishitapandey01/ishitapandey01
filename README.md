@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **ishitapandey1204@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XuUZ1PIkR5ZmjJTSXmUwIoM0aQQOHqCl/view?usp=sharing](https://drive.google.com/file/d/1XuUZ1PIkR5ZmjJTSXmUwIoM0aQQOHqCl/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
